@@ -1,0 +1,1 @@
+# Tek-katmanli-Yapay-Sinir-Agi
